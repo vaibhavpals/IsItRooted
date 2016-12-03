@@ -1,3 +1,1 @@
-# WhatIsXofY
-# WhatIsXofY
 # IsItRooted
